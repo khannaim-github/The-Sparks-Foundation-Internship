@@ -4,4 +4,4 @@
 
 
 Hello Guys, 
-           I recently completed my The Sparks Foundation Internship Program. Here, are some attachment related to my Internship.
+           I recently completed my The Sparks Foundation Internship Program. Here, are some attachment related to my tasks completed in my Internship Program
